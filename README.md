@@ -1,5 +1,2 @@
-- 👋 Hi, I’m @brettknowlton
-- 👀 I’m interested in ... Gamedev, ai, bio-engineering
-- 🌱 I’m currently learning ... Unity & C#
-- 💞️ I’m looking to collaborate on ... New game concept
-- 📫 How to reach me ... you cant
+"CoDinG iS fUN" they said
+"YoU'll bE gOoD aT iT" they said
