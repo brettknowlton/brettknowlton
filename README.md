@@ -1,2 +1,2 @@
-If more people acted like computers I would appreciate a lot more people.
-Unfortunatley theres only 10 types of people in the world.
+cool message goes here
+also pls dont steal my shit
